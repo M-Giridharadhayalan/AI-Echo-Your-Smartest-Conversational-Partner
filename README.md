@@ -1,1 +1,1 @@
-# AI-Echo-Your-Smartest-Conversational-Partner
+# AI Echo Your Smartest Conversational Partner
